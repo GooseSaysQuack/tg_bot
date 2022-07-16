@@ -1,1 +1,1 @@
-
+Ссылка на бота t.me/test_bank_kr_bot
